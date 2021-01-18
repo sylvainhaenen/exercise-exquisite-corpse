@@ -5,4 +5,4 @@
 <br/> After I asked him ***why was he wearing a coat in summer***..
 <br/>  the interviewer said "I'm wearing a coat beacause even in **summer** i'm freezing to *death*!"
 <br/> "***But anyways you shouldn't ask those kind of questions on a job interview***"
-<br/> Then we continued the interview *until*...
+<br/> Then we continued the interview *until* he ask if when will I be available. That question took me by surprise but excited and hopeful because that means I will get the job. I answered immediately that *"I am available as soon as possible".* :simple_smile:. **After a while ...**
