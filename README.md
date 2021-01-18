@@ -3,3 +3,6 @@
 <br/> When the interviewer he immmediately asked me why was I dressed like that.
 <br/> I was quiet confuse and talled him that the weather outside was wonderful.
 <br/> After I asked him ***why was he wearing a coat in summer***..
+<br/>  the interviewer said "I'm wearing a coat beacause even in **summer** i'm freezing to *death*!"
+<br/> "***But anyways you shouldn't ask those kind of questions on a job interview***"
+<br/> Then we continued the interview *until*...
